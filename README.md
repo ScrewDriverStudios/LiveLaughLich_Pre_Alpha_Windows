@@ -1,1 +1,1 @@
-# LiveLaughLich Alpha Windows
+# Live Laugh Lich Alpha Windows
